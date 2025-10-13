@@ -1,0 +1,6 @@
+# Valuable suggestions for this course!
+author: 谢祖钧2025210743
+## 1. what you expect from this course?
+- I hope to improve my listening skills, especially listening to speeches without subtitles.
+## 2. What kind of homework and activities are more effective for your enhancement of academic communication skills under the circumstances that AI is widely used in our academic life?
+- Recommend some speech videos that can help me improve my listening skills. It is best if they can be processed by AI and played repeatedly several times. The first time is without subtitles and played at the original speed, the second time is with subtitles and played at the original speed, and the third time is with subtitles and played at a slow speed. In this way, some students with a good foundation and not much patience to spend on such simple exercises can complete the practice by listening only once, while those with a relatively weak foundation like me naturally have to listen patiently three times to learn. In short, I think this way of practice can play a certain role for students of different levels.
